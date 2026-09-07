@@ -1,11 +1,24 @@
-## HUGE WIP
 
--> ✚　　˳　　♪　　　are we counting sheep , until we dissolve ? <-
+<p align="center">
+ $\color{#cc2b3b}\textsf{✚}$　　˳　　♪　　" $\color{#ebdf5b}\textsf{are}$  $\color{#cc2b3b}\textsf{we}$ $\color{#ebdf5b}\textsf{counting}$ $\color{#cc2b3b}\textsf{sheep}$ , $\color{#ebdf5b}\textsf{until}$ $\color{#cc2b3b}\textsf{we}$ $\color{#ebdf5b}\textsf{dissolve}$ ? "
 
-->![]([https://files.catbox.moe/h5c05o.png](https://files.catbox.moe/3phmvc.PNG))<-
--> 𓎟𓎡⠀⠀**kian**⠀⠀ᵒʳ⠀⠀sage 𓈒⠀⠀ ུ꒱⠀<-
--> he ⠀⠀╱⠀⠀him ⠀⠀ ་༐ ݂ ⠀⠀18
-꒰৯ 𓈒ׅ⠀ ⠀male⠀⠀་ ༢ུ· ⠀⠀!~mlm & transmasc~!<-
-->!~;dotted;overline;⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀~!<-
-->◌ ⃘ 𓈒⠀ㅤׂ⠀⠀ i <3 my friends⠀⠀⠀⠀⠀ 𓏼 ۫ 
-ಿ⠀ ⠀┈⠀ ⠀check out my links !⠀⠀⠀𓈒 ⠀⠀⁺<-
+<p align="center">
+<img width="420" height="420" alt="image" src="https://files.catbox.moe/12pxm6.webp" />
+<p align="center">
+$ac:$ $missionantidote$
+
+
+<p align="center">
+𓎟𓎡⠀⠀ $\color{#cc2b3b}\textsf{kian}$⠀⠀ᵒʳ⠀⠀ $\color{#ebdf5b}\textsf{sage}$ 𓈒⠀⠀ ུ꒱⠀
+
+<p align="center">
+$he$⠀⠀ $╱$⠀⠀ $him$ ⠀⠀ ་༐ ݂ ⠀⠀ $18$
+
+<p align="center">
+꒰৯ 𓈒ׅ⠀ ⠀ $\color{#ebdf5b}\textsf{male}$⠀⠀་ ༢ུ· ⠀ $\color{#cc2b3b}\textsf{transmasc}$
+
+<p align="center">
+◌ ⃘ 𓈒⠀ㅤׂ⠀⠀ $i$ $<3$ $my$ $friends$⠀⠀⠀⠀⠀ 𓏼 ۫ 
+
+<p align="center">
+ಿ⠀ ⠀┈⠀  $\color{#ebdf5b}\textsf{check}$ $\color{#cc2b3b}\textsf{out}$ $\color{#ebdf5b}\textsf{my}$  $\color{#cc2b3b}\textsf{links!}$⠀⠀𓈒 ⠀⠀⁺
