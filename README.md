@@ -5,7 +5,7 @@
 <p align="center">
 <img width="420" height="420" alt="image" src="https://files.catbox.moe/12pxm6.webp" />
 <p align="center">
-$ac:$ $[missionantidote](https://www.tumblr.com/missionantidote/819993231208103936/raviolirats-cats-if-you-even-care?source=share)$
+$ac:$ $missionantidote$
 
 
 <p align="center">
